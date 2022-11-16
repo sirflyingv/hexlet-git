@@ -1,13 +1,8 @@
 git is awesome111
 new line
 
-YES INDEED
+YES INDEED! less keep it onlye here
 
+WIDE PEEPO <-only that
 
-WIDE PEEPO
-
-
-YES INDEEEEED!!!!
-
-
-AM
+YES INDEEEEED  kepp it and here
